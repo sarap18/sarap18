@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @sarap18
-- 🌱 I’m currently learning Computer Science at Università di Pisa
 - 📫 How to reach me: s.picchi18@studenti.unipi.it
 - 😄 Pronouns: she/her
 
